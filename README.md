@@ -1,4 +1,4 @@
-## welcome 2 t9nzin's github page ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+## welcome 2 t9nzin's github page (o˘◡˘o)
 
 <!--
 **t9nzin/t9nzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
